@@ -6,7 +6,3 @@
 4. 계란을 풀고 다진마늘과 대파를 섞는다.
 5. 끓고 있는 냄비에 계란을 푼다.
 6. 팔팔 끓이고, 미원을 넣어 간을 맞춘다.
-
-![비비고 사골국물 육수 === 비비고 사골곰탕](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2369/1b12d25f06770f73487d2ad63d832003e69515a37357c2e4a7e7058537a2.JPG)
-
-7. 간을 맞추고 김을 자른다.
